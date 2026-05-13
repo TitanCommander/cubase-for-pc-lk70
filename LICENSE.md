@@ -1,4 +1,4 @@
-# 
+# premium Cubase for PC | Cubase for Windows Panel | pitch-shifting + time-stretching is the best Cubase for PC | Cubase for Windows panel, featuring pitch-shifting and
 
 
 
